@@ -234,4 +234,4 @@ Ashen is provided as a full free version with all features and updates included.
 Ready to embark on an unforgettable adventure? **Download Ashen free** today and dive into the world of thrilling exploration and intense combat!
 
 ---
-**Last updated:** 2026-11-06 22:33:18 UTC
+**Last updated:** 2026-11-07 02:28:11 UTC
